@@ -1,5 +1,5 @@
 # 🧑🏽‍💻Niranjan
-💻Currently working on Pocketsflow<br>🕸️Freelance Web developer<br>🛜Occasional Network Researcher<br>💼Upcoming Entrepreneur<br><br>Trying to keep myself sane <br>
+💻Currently working on Pocketsflow<br>🕸️Freelance Web developer<br>🛜Occasional Network Researcher<br>💼Upcoming Entrepreneur<br><br>
 
 
 ## 🌐 Socials:
