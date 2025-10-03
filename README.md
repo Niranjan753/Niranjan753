@@ -1,3 +1,3 @@
-# 20, entrepreneur building products for real world problems
+20, entrepreneur building products for real world problems
 
 🥀🥀 EntRePRenEuR
