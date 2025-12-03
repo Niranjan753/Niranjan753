@@ -1,1 +1,1 @@
-20, entrepreneur
+20, Entrepreneur
